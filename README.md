@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding .
 - 🌱 I’m currently learning and exploring various languages.
 - 💞️ I’m looking to collaborate on various code related projects
-- 📫 How to reach me through whatsapp number :: 9877120997
+- 📫 How to reach me through linkdin :: www.linkedin.com/in/kashishbhasin
 - 😄 Pronouns: she /her
   
 
